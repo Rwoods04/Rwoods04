@@ -2,8 +2,7 @@
 - 👀 I’m interested in learning to code and creating projects to get better at!
 - 🌱 I’m currently learning currently learning python in college
 - 💞️ I’m looking to collaborate on anything, newer and ik help would be much appricated
-- 📫 How to reach me woodsrs949@gmail.com!
-- 😄 Pronouns:  he/him 
+- 📫 How to reach me Robert.Woods.Civ@gmail.com
 - ⚡ Fun fact: loving gaming, love soccer as well!
 
 <!---
